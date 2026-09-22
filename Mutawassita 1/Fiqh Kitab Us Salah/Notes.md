@@ -95,5 +95,16 @@ agar wajib galti se chhoda ho toh namaz valid hai but sajdah sahuh karna hoga. j
 Namaz ke sahi hone ke liye 9 shartein hai. Ye sab hona zaroori hai namaz sahi hone ke liye. ek bhi nahi hone se namaz nahi hogi.
 
 1. Islam
-	1. jab muad ibn jabal RA ko yemen bheja tab pehle unko shadatayn ki dawat ke liye bola aur fir namaz ke liye bola nabi SAWS ne
-2. 
+	- jab muad ibn jabal RA ko yemen bheja tab pehle unko shadatayn ki dawat ke liye bola aur fir namaz ke liye bola nabi SAWS ne
+	- ibadat ki qabooliyat ki 2 shartein hai - ikhalas aur mutaba'at
+	- qabooliyat ki 2 kismein hai:
+		a. qabool sehat aur ijzah - kya humari ibadat sahi hai ke nahi, aur kya kaafi hai ke nai
+		b. qabool sawab wa jaza 
+	abdullah ibn umar se riwayat hai - 2 log ese hai jinki namazein unko sar se upar nahi jaati: 1. esa gulam jo aaka ko chhod ke bhag gaya hoga 2. esi aurat jo shohar ki nafarmani kare.
+	Agar kisi ki namaz sahi nahi hogi toh keh sakte hia usko ajaro-sawab nahi milega, lekin agar kisi ki namaz sahi hogi usse ye laazim nahi hota ke usko ajaro-sawab milega.
+2. Aqal 
+	- ye: 
+		- shart-e-ujoob - uspe fard nai hai
+		- shart-e-sehat - padh le toh sahi nahi hai
+		- shart-e-ijza  - agar theek ho jaye toh namaz firse padni hogi jo junoon ki halat me padhi thi
+	- Ali RA se riwayat hai ke 3 tarah ke log mafoon qalam hai - sota hua aadmi jab tak wo bedaar na ho jaye, bachha jab tak baalig na ho jaye, aur pagal jab tak wo aqalmand na ho jaye
