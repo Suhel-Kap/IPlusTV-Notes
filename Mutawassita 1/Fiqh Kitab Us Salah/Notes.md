@@ -108,3 +108,48 @@ Namaz ke sahi hone ke liye 9 shartein hai. Ye sab hona zaroori hai namaz sahi ho
 		- shart-e-sehat - padh le toh sahi nahi hai
 		- shart-e-ijza  - agar theek ho jaye toh namaz firse padni hogi jo junoon ki halat me padhi thi
 	- Ali RA se riwayat hai ke 3 tarah ke log mafoon qalam hai - sota hua aadmi jab tak wo bedaar na ho jaye, bachha jab tak baalig na ho jaye, aur pagal jab tak wo aqalmand na ho jaye
+
+
+### Lesson 16
+
+Namaz ki sehat ki fifth shart - najasat se paaki haasil karna
+
+Najasat har wo chiz hai jisko shariat ne saaf karne ka hukm diya hai
+Ye 3 chizen najasat se paak honi chahiye - jism, kapda aur jagah
+
+**Konsi chiz najasat hai?**
+Qaeda: Duniya ki tamaam chizon ka asal paak hai
+Jo aadmi asal se opposite baat karega, daleel use lana hoga
+
+1. Har wo chiz jo aise jaandar ke andar se nikle jiska khana humein haram hai 
+	- Eg., kutta, pig ye haram hai - toh iske jism se nikla har chiz najis hoga
+	- Insan bhi isi me aayega
+	- Exceptions 
+		- mani (aap SAWS ke kapdo par mani laga hota tha aur wo unme namaz padte the)
+		- aurat ka doodh 
+		- aadmi ki naak aur mooh se jo chizen nikalti hai
+		- aadmi ka khoon aur pasina
+		- har wo jaandar jinke jism me utna khoon na ho ki wo bahe (eg, housefly)
+2. Tamaan tarah ke murdar janwar
+	- Eg bakra jo ese hi mar gaya ho
+	- Exceptions:
+		- mara hua aadmi
+		- pani ke andar ke jaandar
+		- har wo jaandar jinke jism me utna khoon na ho ki wo bahe (eg, housefly)
+3. Har wo haiwan jiska murdar najis hai aur us haiwan ke jism se koi hissa alag kar diya jaye toh wo bhi najis hai
+	- Exceptions:
+		- Baal
+		- Pankh (feather)
+		- Seengh (horns)
+		- Haddi 
+		- Khoon
+
+**Paaki hasil karne ka tarika kya hai?** 
+Najasat ki 3 kismein hai:
+1. Najasat-e-mugallaza: sirf ek chiz hai - kutte ka luab
+	- 7 baar dhona hai, pehli ya aakhri baar mitti se (sabun bhi istemal kar sakte hai)
+2. Najasat-e-mukhaffafa: 
+	- sheer-gaar ladke ka pishab aur madhi - in dono pe paani ka chinta maarna kaafi hai
+3. Najasat-e-mutawassita
+	- upar ke alawa sab najasat 
+	- koi bhi tarika ikhtiyar karke paaki haasil kar sakte hai
